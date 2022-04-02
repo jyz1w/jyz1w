@@ -1,0 +1,4 @@
+- Hi, I’m jyzw
+- I’m interested in technology as you can tell
+- I’m currently learning Python nd Javascript
+- Discord: jyzw#0069
